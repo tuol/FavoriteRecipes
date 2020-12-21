@@ -17,4 +17,5 @@
 * Mussels
 
 ## Instructions
-Anything goes for this soup. As long as you take the time to make this soup, it will be awesome.
+Let the stock simmer for many hours.
+When making the soup/stew: anything goes. As long as you take the time, it will be awesome.
