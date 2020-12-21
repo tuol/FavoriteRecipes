@@ -1,11 +1,12 @@
 #Fish stew / soup
 
 ## Ingredients stock
-* Boil a fish carcass for hours 
-* Or use the water used for steaming mussels
+* Fish carcass / cuttings 
+* White wine
+* Soup vegetables
 
 ## Ingredients soup
-* Previously made stock 
+* Previously made stock / Water used for steaming mussels
 * 2 cloves of garlic
 * 1 cut onion
 * 2 diced carrots
